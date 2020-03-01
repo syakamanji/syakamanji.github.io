@@ -1,0 +1,1 @@
+# syakamanji.github.io
